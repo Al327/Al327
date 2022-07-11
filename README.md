@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Al327
+- 👀 I’m interested in a lot of technologys 
